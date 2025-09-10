@@ -27,5 +27,5 @@
 ---
 
 ## 🌐 Connect with Me
-- 📩 Email: *[add your email if you want to]*  
-- 💼 LinkedIn: *[add link when you create one]*
+- 📩 Email: *dinithidewindyajayamini@gmail.com*  
+- 💼 LinkedIn: *Dinithi Dewindya Jayamini*
